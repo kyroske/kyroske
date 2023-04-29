@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kyroske
+- Glad to join Soralink in this summer!
